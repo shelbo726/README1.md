@@ -1,0 +1,1 @@
+[Link to my favorite animal](https://pixabay.com/photos/tiger-swamp-big-cat-wild-cat-2535888/).
